@@ -1,4 +1,4 @@
-Chapter: Conclusion
+Conclusion
 ===================
 
 The Ongoing Journey of the Master
