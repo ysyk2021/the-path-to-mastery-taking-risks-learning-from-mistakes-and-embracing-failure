@@ -41,4 +41,3 @@ Here are some practical strategies to help you strike a balance between self-com
 6. **Practice Self-Compassionate Accountability:** Approach accountability with self-compassion by focusing on learning and growth rather than self-criticism. Treat yourself with kindness and understanding while taking responsibility for your actions, allowing room for mistakes and growth.
 
 Remember, finding the balance between self-compassion and accountability is an ongoing process. Be patient with yourself as you navigate this journey towards mastery. By embracing both elements, you will cultivate resilience, foster personal growth, and ultimately achieve greater success and fulfillment in your chosen path.
-> "With self-compassion, I embrace my imperfections and learn from them. With accountability, I take responsibility for my choices and strive for continual growth on the path to mastery."

@@ -60,4 +60,3 @@ Setting Goals for Lifelong Growth
 ---------------------------------
 
 Setting goals for personal growth is not a one-time activity but a lifelong practice. Continuously set new goals that challenge and inspire you. Embrace continuous learning, adaptability, and resilience on your journey towards mastery. Remember, the path to personal growth is dynamic and ever-evolving, and goal-setting provides the compass to navigate it.
-> "By setting meaningful goals, we illuminate our path to personal growth and empower ourselves to reach new heights of mastery. Let your goals guide you towards a life of purpose, fulfillment, and continuous progress."

@@ -37,3 +37,4 @@
   - [Setting goals for professional growth](chapter-9-2.md)
   - [Building skills through the path to mastery](chapter-9-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
