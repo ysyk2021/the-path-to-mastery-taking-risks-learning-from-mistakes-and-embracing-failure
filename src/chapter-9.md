@@ -1,5 +1,3 @@
-Chapter 8: Applying Mastery to Professional Growth
-==================================================
 
 Mastery can be applied to professional growth by developing skills and knowledge necessary for career advancement. In this chapter, we will explore how individuals can use mastery for career development, set goals for professional growth, and build skills through the path to mastery.
 

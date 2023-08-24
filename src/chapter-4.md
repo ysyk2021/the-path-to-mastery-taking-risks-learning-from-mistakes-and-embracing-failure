@@ -1,5 +1,3 @@
-Chapter 3: Taking Risks
-=======================
 
 Taking risks is an essential component of achieving mastery. In this chapter, we will explore the importance of taking risks in the journey towards mastery, techniques for taking calculated risks, and building resilience in the face of failure.
 

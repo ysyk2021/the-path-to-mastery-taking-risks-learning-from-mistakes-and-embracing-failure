@@ -1,5 +1,3 @@
-Building Relationships with Mentors and Role Models
-============================================================
 
 In the journey towards mastery, having mentors and role models can provide invaluable guidance, inspiration, and support. This chapter explores the importance of building relationships with mentors and role models and how they can accelerate your path to mastery.
 

@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is critical for achieving mastery. In this chapter, we will explore the importance of a growth mindset, techniques for developing a growth mindset, and overcoming obstacles on the path to mastery.
 

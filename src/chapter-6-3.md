@@ -1,5 +1,3 @@
-Balancing Self-Compassion with Accountability
-======================================================
 
 In this chapter, we will explore the importance of balancing self-compassion with accountability on your journey to mastery. While self-compassion allows for kindness and acceptance, accountability fosters growth and learning from mistakes. Finding the right balance between these two elements is crucial for personal development, resilience, and achieving mastery in any endeavor.
 

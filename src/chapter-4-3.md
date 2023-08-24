@@ -1,5 +1,3 @@
-Building Resilience in the Face of Failure
-===================================================
 
 In this chapter, we will explore the importance of building resilience when faced with failure on the path to mastery. Failure is an inevitable part of any journey towards excellence, and how we respond to it determines our ability to bounce back, learn from our mistakes, and continue progressing towards mastery.
 

@@ -1,5 +1,3 @@
-Chapter 6: Seeking Out Mentors and Role Models
-==============================================
 
 Mentors and role models can play a crucial role in achieving mastery in a particular field. In this chapter, we will explore the importance of seeking out mentors and role models, how to identify potential mentors and role models, and how to build relationships with them.
 

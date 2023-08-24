@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-===================================================
 
 In this chapter, we will explore various techniques for developing a growth mindset, which is essential on the path to mastery. A growth mindset embraces challenges, persists in the face of setbacks, and believes in the potential for continuous growth and improvement. By cultivating a growth mindset, individuals can unlock their full learning potential and accelerate progress towards mastery.
 

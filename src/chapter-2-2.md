@@ -1,5 +1,3 @@
-Types of Mastery
-=========================
 
 In this chapter, we will explore different types of mastery that exist across various domains. Mastery is not limited to a specific field or skill set - it can be achieved in a wide range of disciplines and areas of expertise. Understanding the different types of mastery can help you identify where your interests lie and guide you on your own path to mastery.
 

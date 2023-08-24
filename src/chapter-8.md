@@ -1,5 +1,3 @@
-Chapter 7: Applying Mastery to Personal Growth
-==============================================
 
 Mastery can be applied not just to professional or academic pursuits, but also to personal growth. In this chapter, we will explore how to apply mastery to personal development.
 
