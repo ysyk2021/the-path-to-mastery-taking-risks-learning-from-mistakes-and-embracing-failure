@@ -1,3 +1,6 @@
+# The Path to Mastery: Taking Risks, Learning from Mistakes, and Embracing Failure
+
+Book Link: [https://zhengpublishing.com/the-path-to-mastery-taking-risks-learning-from-mistakes-and-embracing-failure/](https://zhengpublishing.com/the-path-to-mastery-taking-risks-learning-from-mistakes-and-embracing-failure/)
 
 "The Path to Mastery: Taking Risks, Learning from Mistakes, and Embracing Failure" is a book that offers practical advice and guidance for anyone who wants to achieve mastery in their personal or professional life. Through a series of insightful chapters, this book explores the key strategies and mindsets that successful individuals have used to become experts in their field.
 
